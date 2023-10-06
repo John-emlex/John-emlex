@@ -28,7 +28,7 @@ For inquiries or opportunities, please send me an Email
 
 📫 How to reach me on my email peterjohnemlex@gmail.com or on linkedin at john (chukwuebuka) peter...
 
-😄 Am currently Learning at Decagon Uploading …
+😄 Am currently Learning at Decagon
 
 
 
