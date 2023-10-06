@@ -18,7 +18,7 @@ anime-tyan--discord-themes-download-free-35756
 💞️ I’m looking to collaborate with fintechs, E-commerce, healthcares and different companies and start-up to build and work on project that solve problems...
 📫 How to reach me on my email peterjohnemlex@gmail.com or on linkedin at john (chukwuebuka) peter...
 😄 Am currently Learning at Decagon Uploading …
-68747470733a2f2f6769746875622d726561646d652d73747265616b2d73746174732e6865726f6b756170702e636f6d2f3f757365723d6c657878796c6126 68747470733a2f2f6769746875622d726561646d652d73746174732e76657263656c2e6170702f6170692f746f702d6c616e67733f757365726e616d653d6c657878796c612673686f775f69636f6e733d74727565266c6f63616c653d656e266c61796f75743d636f6d70616374
+
 
 
 <!---
