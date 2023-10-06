@@ -10,7 +10,7 @@ I'm an adaptable, resourceful, and meticulous associate software engineer at Dec
 
 Fun fact about me: am Always Smart, and fun to be with 😅 😅
 
-Favorite Quote: > Don't let your self be describ, Always be you.
+Favorite Quote: > Don't let your self be described, Always be you.
 
 For inquiries or opportunities, please send me an Email
 
