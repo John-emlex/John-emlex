@@ -6,7 +6,7 @@ Here are some ideas to get you started:
 
 Get to know me
 
-I'm an adaptable, resourceful, and meticulous associate software engineer at Decagon specializing in back-end and front-end development, with a B.Eng in Polymer and textile Engineering.
+I'm an adaptable, resourceful, and meticulous associate software engineer at Decagon specializing in back-end and front-end development, with a B.Eng in Engineering.
 
 Fun fact about me: am Always Smart, and fun to be with 😅 😅
 
